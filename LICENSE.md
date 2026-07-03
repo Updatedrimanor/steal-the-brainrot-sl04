@@ -1,4 +1,4 @@
-#  
+#  Experience steal the brainrot base like never before with steal the brainrot base Scripts best, the #1 Script. Includes undetectable and invisibility
 
 
 
